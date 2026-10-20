@@ -1,1 +1,1 @@
-# Risalah
+# Kumpulan-kumpulan tulisan acak
